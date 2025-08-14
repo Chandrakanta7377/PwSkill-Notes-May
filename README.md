@@ -1,48 +1,48 @@
 WhiteBoard Link.
 15-May---- Orientation
 
-https://miro.com/app/board/uXjVI1WSTyQ=/
-17-May
+17-May: https://miro.com/app/board/uXjVI1WSTyQ=/
+
 
 </br>
 
-https://miro.com/app/board/uXjVI0S_fUs=/
-18-May
+18-May: https://miro.com/app/board/uXjVI0S_fUs=/
+
 
 </br>
 
-https://miro.com/app/board/uXjVIziHFCw=/
-24-May
+24-May: https://miro.com/app/board/uXjVIziHFCw=/
+
 
 </br>
 
-https://miro.com/app/board/uXjVIwnNDcg=/
-25-May
+25-May: https://miro.com/app/board/uXjVIwnNDcg=/
+
 
 </br>
 
-https://miro.com/app/board/uXjVIw22Kig=/
-31-May
+31-May: https://miro.com/app/board/uXjVIw22Kig=/
+
 
 </br>
 
-https://miro.com/app/board/uXjVItnYYqQ=/
-01-June
+01-June: https://miro.com/app/board/uXjVItnYYqQ=/
+
 
 </br>
 
-https://miro.com/app/board/uXjVItxcNcU=/
-07-June
+07-June: https://miro.com/app/board/uXjVItxcNcU=/
+
 
 </br>
 
-https://miro.com/app/board/uXjVIrbwUik=/?share_link_id=895840115779
-08-June
+08-June: https://miro.com/app/board/uXjVIrbwUik=/?share_link_id=895840115779
+
 
 </br>
 
-https://miro.com/app/board/uXjVIqgNq7I=/
-14-june
+14-june: https://miro.com/app/board/uXjVIqgNq7I=/
+
 </br>
 
 https://miro.com/app/board/uXjVIo_GuhY=/?share_link_id=562917544454
